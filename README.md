@@ -1,3 +1,3 @@
-# shit_hipsters_do
+# Shit Hipsters Do
 
 ###I'll figure this shit out later
